@@ -9,4 +9,5 @@
 3 - Откройте **service.bat** и через **Install Service** устанавливаете мой **ALT**\
 **( после этого вам не нужно запускать в ручную, если не работает то пишите попробую разобраться discord:sustainposl )**
 
-https://media.tenor.com/hYkRcm80JFwAAAAj/foxy-foxplushy.gif
+
+![foxy-foxplushy](https://github.com/user-attachments/assets/a40be32a-026d-4340-80ce-04297f0d83db)
