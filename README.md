@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![kancolle-dance](https://github.com/user-attachments/assets/0c2db8d4-e00f-4f99-b37b-cb42231ac5cf)
+![benjammins-usa](https://github.com/user-attachments/assets/4f3dd00a-c58f-4281-83e4-9496b548652a) ![kancolle-dance](https://github.com/user-attachments/assets/0c2db8d4-e00f-4f99-b37b-cb42231ac5cf) ![benjammins-usa](https://github.com/user-attachments/assets/4f3dd00a-c58f-4281-83e4-9496b548652a)
 
 **Arc Raiders фикс голосового чата (также фиксит подключение Apex legends)**\
 
@@ -11,3 +11,4 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![foxy-foxplushy](https://github.com/user-attachments/assets/a40be32a-026d-4340-80ce-04297f0d83db)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![1437651531_786825997](https://github.com/user-attachments/assets/07a556db-1e18-4ef7-96a8-79b057bee593)
