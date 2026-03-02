@@ -1,3 +1,5 @@
+Я ухожу вроде проблема с выходом новой версии запрета решилась для большинства удалять репу не буду, мб еще кому то поможет, но добавлять новые адреса или новый метод не буду так как я перестал играть в Arc Raiders и Apex Legends.
+
 
 ![benjammins-usa](https://github.com/user-attachments/assets/4f3dd00a-c58f-4281-83e4-9496b548652a) ⠀⠀⠀⠀⠀⠀⠀![kancolle-dance](https://github.com/user-attachments/assets/0c2db8d4-e00f-4f99-b37b-cb42231ac5cf)
 
